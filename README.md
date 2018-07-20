@@ -1,1 +1,1 @@
-# freewalkingtour
+# freewalkingtourcostarica
